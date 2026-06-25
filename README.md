@@ -1,5 +1,2 @@
-https://github.com/user-attachments/assets/573b426e-11e5-42b5-887a-1b75e3bc6b3f
-
-
-
+https://github.com/user-attachments/assets/7a8bd54c-9385-478b-bfc4-b5f52fe55c2b
 　　　　　　art cr @gami_336
