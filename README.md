@@ -1,7 +1,3 @@
-
-
-
-https://github.com/user-attachments/assets/858241e3-b171-46b3-ba30-86160fc4555d
-
+<img width="498" height="498" alt="lifesteal-smp-lifesteal" src="https://github.com/user-attachments/assets/03d22f24-399c-48ce-b0e1-1fc4319363c9" />
 
 　　　　　　art cr @gami_336
