@@ -20,4 +20,4 @@
 <br>
 <br>
 <br>
-　　　　　　art cr @gami_336 @roseee283
+<sup> art cr @gami_336 @roseee283> </sup>
