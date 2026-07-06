@@ -10,8 +10,7 @@
 <br>
 <br>
 <br>
-<br>
-<br>
+　　　　　　　　　[新book](https://wubism.atabook.org/) pls
 <br>
 <br>
 <br>
