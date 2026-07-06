@@ -4,13 +4,13 @@
 <br>
 <br>
 　　　　　　hi my name is crewmate
+      
+　　　　　i am the good guy on the spaceship
 <br>
 <br>
 <br>
 <br>
-<br>
-<br>
-　　　　　　　　　[新book](https://wubism.atabook.org/) pls
+　　　　　　　　　sign my [新book](https://wubism.atabook.org/) pls
 <br>
 <br>
 <br>
