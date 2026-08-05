@@ -1,6 +1,6 @@
 <div align="center">
 <br>
-<img src="https://komarev.com/ghpvc/?username=godduo&style=flat-square&color=190019&label=NULL+HUNTERS" alt="profile view counter">
+<img src="https://komarev.com/ghpvc/?username=godduo&base=1903990&style=flat-square&color=190019&label=NULL+HUNTERS" alt="profile view counter">
 <br>
 <br>
 <br>
