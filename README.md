@@ -3,3 +3,5 @@
 
 
 <br><br> <table> <tr> <td> HELLO IT IS I <br> </td> </tr> </table>
+
+<br><details> <summary> text you click on </summary> info info here info info </p></details>
