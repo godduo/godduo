@@ -12,3 +12,15 @@
 <br><br> <table> <tr> <td>ㅤㅤㅤ˙𐃷˙ㅤㅤㅤ<br> </td> </tr> </table>
 
 <br><details> <summary> $${\color{#800080}F \color{#730073}OR  \space \color{#660066}THE \space \color{#590059}LO \color{#4c004c}VE \space \color{#400040}OF \space \color{#330033}G \color{#260026}O \color{#190019}D }$$ </summary> 	ㅤㅤㅤ<br> <sup> info info here info </sup> <br> <sup> info info here info </sup> <br> <sup> info info here info </sup> <br> <sup> info info here info </sup> <br> <sup> info info here info </sup> <br> <sup> info info here info </sup>  </p></details>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+   [新book](https://wubism.atabook.org/)  ‎ ‎   [rentry](https://rentry.co/exploitarc)  ‎ ‎   [strawpage](https://patchbreakers.straw.page/)
