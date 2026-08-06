@@ -12,7 +12,7 @@
 <br>
 
 
-<img width="123" height="186" alt="Untitled203_20260806134157" src="https://file.garden/aivfnOmhq2PS5dZ4/Untitled203_20260806134157.png" />
+<img src="https://file.garden/aYcjB7qxDC3tLALZ/goodbye.png" width="123">
 
 <br>
 <br>
