@@ -12,7 +12,8 @@
 <br><br> <table> <tr> <td>ㅤㅤㅤ˙𐃷˙ㅤㅤㅤ<br> </td> </tr> </table>
 <br>
 
-<img width="123" height="186" alt="Untitled203_20260806134157" src="https://github.com/user-attachments/assets/ab15eae3-2342-4bb4-9210-8af26917541a" />
+
+<img width="123" height="186" alt="Untitled203_20260806134157" src="https://file.garden/aivfnOmhq2PS5dZ4/Untitled203_20260806134157.png" />
 
 <br>
 <br>
