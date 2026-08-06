@@ -12,7 +12,7 @@
 <br><br> <table> <tr> <td>ㅤㅤㅤ˙𐃷˙ㅤㅤㅤ<br> </td> </tr> </table>
 <br>
 
-<img width="123" height="186" alt="Untitled203_20260806134157" src="https://github.com/user-attachments/assets/d3ace111-ddfd-40fd-bc3a-860429dbcd5b" />
+<img width="123" height="186" alt="Untitled203_20260806134157 (1)" src="https://github.com/user-attachments/assets/a3b74b40-7f8b-46c6-8fc0-19f9cbc72bb0" />
 <br>
 <br>
 <br>
